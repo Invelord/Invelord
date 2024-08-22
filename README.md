@@ -1,5 +1,5 @@
 # 💫 About Me:
-Too many fancy names out there so i will just call myself a human.
+I am a programmer and also a content creator. I make videos on youtube, instagram, and many other social media platforms. You can check out my social media accounts below.
 
 
 Social Medias:
