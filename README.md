@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a programmer and also a content creator. I make videos on youtube, instagram, and many other social media platforms. If you ever need to contact me (wether it is formal or informal), please join my discord server and message me. You can check out my social media accounts below.
+I make videos on youtube, instagram, and many other social media platforms. You can check out my social media accounts below. For formal contact, please send me an email: invelord@gmail.com
 
 
 Social Medias:
