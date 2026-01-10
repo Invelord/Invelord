@@ -1,5 +1,5 @@
 # 💫 About Me:
-I make videos on youtube, instagram, and many other social media platforms. You can check out my social media accounts below. For formal contact, please send me an email: invelord@gmail.com
+For formal contact, please send me an email: invelord@gmail.com
 
 
 Social Medias:
